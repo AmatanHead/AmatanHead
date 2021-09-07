@@ -1,4 +1,4 @@
-### 👋 Hi there! You can find my active github account [here][1].
+### 👋 Hi there! You can find my current github account [here][1]
 
 This is my old account, it just sits here so no-one else can claim it.
 
